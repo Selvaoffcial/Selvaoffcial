@@ -10,6 +10,8 @@
 - 👨‍💻 All of my projects are available at [https://selvaoffcial.github.io/Personal-Portpolio/](https://selvaoffcial.github.io/Personal-Portpolio/)
 
 - 📫 How to reach me **selvaoffl46@gmail.com**
+  
+- ⚡ Fun fact **don't judge a book by a its cover bro.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
